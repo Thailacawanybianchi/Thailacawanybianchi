@@ -11,6 +11,5 @@ meu nome e Thaila Cawany
 00001124960302sp@al.educacao.sp.gov.br
 
 
-
 ![]()
 https://media.tenor.com/CzaHhPyIR8gAAAAM/rosy00.gif
